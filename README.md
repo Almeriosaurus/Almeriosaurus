@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Almeriosaurus
-- 👀 I’m interested in licking other peoples armpits.
+- 👀
 - 🌱 I’m currently learning how to be happy.
 - 📫 How to reach me: Don't.
 
